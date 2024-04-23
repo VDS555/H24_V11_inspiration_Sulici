@@ -8,4 +8,4 @@ Cette conférence a porté sur les oeuvres de Raphael Lozano-Hemmer, leurs conce
 
 
 ## Conclusion
-Pour mon appréciation, je débute 
+Pour mon appréciation, je débute en expressant mon admirations pour ces gens qui travaillent si dure pour des oeuvres qui se ferons enlever. Ce que je veux dire, c`est que mettre des centaines d`heures sur une statue qui reste au milieu de la ville, c`est different que travailler des centaines d`heures sur un projet qui va se faire enlever apres l`evenement.
