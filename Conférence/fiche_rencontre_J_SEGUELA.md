@@ -15,7 +15,7 @@ Pour mon appréciation, je débute en expressant mon admirations pour ces gens q
 
 
 ## Image du site
-![media](media/amodalsuspension_yamaguchi.jpg)
+![media](media/amodalsuspension_yamaguchi_02.jpg)
 
 Liens : site web : https://www.lozano-hemmer.com/images.php
 
